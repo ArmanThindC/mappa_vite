@@ -1,1 +1,0 @@
-# mappa_vite
